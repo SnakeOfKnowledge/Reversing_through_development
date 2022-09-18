@@ -11,3 +11,6 @@ https://drive.google.com/file/d/1B0fTOCKKdvoD-WTCUxE53dwugYhKythg/view?usp=shari
 
 유니티 예제파일
 https://drive.google.com/file/d/1_LJ2Oshx-aNzna6DVGVVSAZsvyt0iizs/view?usp=sharing
+
+책의 오타나 잘못된 부분은
+snakeofknowledge@gmail.com으로 보내주시면 감사하겠습니다.
